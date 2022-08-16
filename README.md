@@ -1,4 +1,4 @@
-# Hm.. interesting domain.
+# Welcome to my hell.
 
 Thought was a heavy weight champ,
 
