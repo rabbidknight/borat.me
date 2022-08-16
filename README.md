@@ -1,4 +1,4 @@
 # Welcome..
 
-![logo](main/FZbUyrgXwAAr1ud.jpeg)
+![logo](FZbUyrgXwAAr1ud.jpeg)
 
