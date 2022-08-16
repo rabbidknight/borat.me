@@ -10,7 +10,7 @@ One o' almighty,
 
 I had enough of you for this sensical none..
 
-
+..
 
 Maybe a machine could perform the same,
 
@@ -20,7 +20,7 @@ A just nor senseless one, am i 'to blame?
 
 With all the grudges against me you hold..
 
-
+..
 
 
 I just wanted to see you face again,
