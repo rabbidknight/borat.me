@@ -2,5 +2,5 @@
 
 site in progress...
 
-![logo](FZbUyrgXwAAr1ud.jpeg)
+![logo](F2CFCC52-ADA8-4B1D-A2B9-49ABAB1741BA.JPG)
 
