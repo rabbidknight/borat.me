@@ -2,7 +2,7 @@
 
 Seems like i will only use a single page,
 
-Refreshing and reevualuatihg with every put cage,
+Refreshing and reevaluating with every put cage,
 
 Might be too much of a hassle;
 
