@@ -80,5 +80,5 @@ To never go back,
 To when we were in majors.
 
 
-![logo](F2CFCC52-ADA8-4B1D-A2B9-49ABAB1741BA.JPG)
+![logo](CDEB61E0-769F-42DE-8E49-2FCE38199116 2.png)
 
