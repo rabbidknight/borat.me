@@ -1,44 +1,83 @@
-# Welcome to my second post...
+# Why even bother..
 
-Seems like i will only use a single page,
 
-Refreshing and reevaluating with every put cage,
+Noone visits anyway.
 
-Might be too much of a hassle;
+My message always stays hiding a click away.
 
-..
+May be a problem's got it afar,
 
-I know it first-hand, 
+As far as i know, a no-man would never set it as to inflict,
 
-If i don't take care of this new piece of land,
+Not for personal use, albeit i'm not sure if there's any excuse,
 
-Who else's thoughts will be the same as i blend?
+May got it for an applause,
 
-Who to i will convey,
+For an internal conflict, i must strictly restrict my improvisation,
 
-Without happening to forget,
+On what we settle on for this page,
 
-Why you are even here,
+On what i need to convey, 
 
-As i haven't found the time to create a propper blog,
+On this never-ending lands of foray,
 
-Taking baby steps at a time,
+Some far from me, never backing away from thy me.
 
-A time where i try to find,
+No-matter the distance, always end up picking up a stance,
 
-Whether if looking forward was a wrong touche,
+As long as these commas go,
 
-Weather's clear enough to take a gaze,
+May the thoughts of me come and go, 
 
-Oh so posh, 
+As i will probably be never set-a-foot, even if yours never stay put,
 
-Just wait for some time and i will commit another push.
+To my basic knowledge,
 
-For now for my history,
+That means you;
 
-I will be archiving on the wayback machine.
+To not stay under any borderline contradiction,
 
-Like if you care...
+You always told me as so, to never tear the body apart,
+
+For whatever reason that i, still ondo to try to not hold back,
+
+May you continue to gather more bases.
+
+It may be fragile as a couple of vases,
+
+But in most cases,
+
+I will still continue to believe in you,
+
+No matter whatever it takes, what my hero aces...
+
+Don't stop,
+
+Neither you, the reader,
+
+You don't need to feed the flower.
+
+Why not be your only lover?
+
+A sunday stride should not be a single-go.
+
+Just believe in yourself, where ever you get thrown.
+
+So do i, may never get to see you,
+
+But i will be awaiting you. 
+
+A wait even if takes me ages,
+
+That i'm absolutely sure,
+
+Will give me the courages,
+
+That you have reached your absolute peak,
+
+To never go back, 
+
+To when we were in majors.
 
 
 ![logo](F2CFCC52-ADA8-4B1D-A2B9-49ABAB1741BA.JPG)
